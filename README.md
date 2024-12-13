@@ -14,7 +14,7 @@
 
 - 👨‍💻 I’m an Undergraduate at **SLIIT**
 
-- 💬 Ask me about **Web [MERN, Java , PHP]**
+- 💬 Ask me about **anything😁**
 
 - 📫 How to reach me **cn1120693@gmail.com**
 - 📄 Know about my experiences **https://drive.google.com/file/d/1ztPTiZ5Xbm1kwtwOUGsFaSqGEwsrluSB/view**  
